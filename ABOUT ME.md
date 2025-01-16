@@ -2,7 +2,7 @@ Hi, I’m @GoofyNutNightmare, but you can call me Max.
 Here's a little about me:
 - I like drawing, video games, and loud music
   - Team Fortress 2 is my go to game rn
-  - Death Grips, Femtanyl, and Danny Brown are my go to music artists rn 
+  - Death Grips and Sewerslvt are my go to music artists rn 
 - Pronouns are he/him (but I don't really care what you call me)
 
 
